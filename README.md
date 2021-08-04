@@ -1,1 +1,1 @@
-# Hello_world
+# Hello_world hey! My name is R.... Well well I don't feel like announcing my name right now and if you ask why? It's for you to assume. If you wanna know about me, I'm just a teen who reached into adulthood without any goal in life. But tbh I'm kinda interested in programming. I enjoy my life. I did have a good childhood too.. That's all I'd like to say. 'Kay bye!! 
